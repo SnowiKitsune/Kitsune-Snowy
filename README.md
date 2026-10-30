@@ -1,7 +1,10 @@
 # ｡⋆ ﾟ☾ ﾟ⋆｡ﾟ☁︎⋆ $\small\color{purple}{\textsf{──}}$ $\tiny{\textsf{⊹ ࣪ ˖}}$ $\Large\color{#ffd454}{\textsf{✦}}$ $\large{\textsf{☆}}$ $\Large\color{#5788fa}{\textsf{Kitsune}}$ $\large{\textsf{☆}}$ $\Large\color{#ffd454}{\textsf{✦}}$ $\tiny{\textsf{˖ ࣪ ⊹}}$ $\small\color{purple}{\textsf{──}}$ ⋆｡ﾟ☁︎｡⋆ ﾟ
 
 <p align="center">
-$\Large\color{#62d6fc}{\textsf{Yooo! welcome welcome! ( ˙ᗜ˙ )}}$
+$\tiny\color{#d96f74}{\textsf{(It's better viewed in desktop.)}}$
+
+<p align="center">
+$\Large\color{#7db3f5}{\textsf{Yooo! welcome welcome! ( ˙ᗜ˙ )}}$
 
 I assume you are here to get to know more about me. Here is my [strawpage](https://kitsunespage.straw.page/) about me, my guy.
 
@@ -26,3 +29,6 @@ _______________■ ■ ■ ■ $\color{#000000}{\textsf{■}}$ $\color{#000000}{
 _______________■ ■ ■ ■ ■ ■ $\color{#000000}{\textsf{■}}$ $\color{#000000}{\textsf{■}}$ ■ ■ ■ ■ $\color{#000000}{\textsf{■}}$ $\color{#000000}{\textsf{■}}$ $\color{#000000}{\textsf{■}}$ $\color{#000000}{\textsf{■}}$ $\color{#000000}{\textsf{■}}$ $\color{#000000}{\textsf{■}}$ $\color{#000000}{\textsf{■}}$ ■ $\color{#747D84}{\textsf{■}}$ $\color{#747D84}{\textsf{■}}$ $\color{#747D84}{\textsf{■}}$ $\color{#747D84}{\textsf{■}}$ $\color{#747D84}{\textsf{■}}$ $\color{#5886A0}{\textsf{■}}$ $\color{#5886A0}{\textsf{■}}$ $\color{#5886A0}{\textsf{■}}$ $\color{#000000}{\textsf{■}}$ ■ ■ ■ ■ ■ ■_______________
 _______________■ ■ ■ ■ ■ ■ ■ ■ $\color{#000000}{\textsf{■}}$ ■ ■ ■ ■ ■ $\color{#000000}{\textsf{■}}$ $\color{#000000}{\textsf{■}}$ $\color{#000000}{\textsf{■}}$ $\color{#000000}{\textsf{■}}$ $\color{#000000}{\textsf{■}}$ ■ ■ $\color{#000000}{\textsf{■}}$ $\color{#000000}{\textsf{■}}$ $\color{#000000}{\textsf{■}}$ $\color{#000000}{\textsf{■}}$ $\color{#000000}{\textsf{■}}$ $\color{#000000}{\textsf{■}}$ $\color{#000000}{\textsf{■}}$ $\color{#000000}{\textsf{■}}$ $\color{#000000}{\textsf{■}}$ $\color{#000000}{\textsf{■}}$ ■ ■ ■ ■_______________
 _______________■ ■ ■ ■ ■ ■ ■ ■ ■ ■ ■ ■ ■ ■ ■ ■ $\color{#000000}{\textsf{■}}$ $\color{#000000}{\textsf{■}}$ $\color{#000000}{\textsf{■}}$ $\color{#000000}{\textsf{■}}$ ■ ■ ■ ■ ■ ■ ■ ■ ■ ■ ■ ■ ■ ■ ■_______________
+
+<p align="center">
+♥︎ Shamimi ♥︎
