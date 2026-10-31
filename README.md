@@ -1,4 +1,4 @@
-# ｡⋆ ﾟ☾ ﾟ⋆｡ﾟ☁︎⋆ $\small\color{purple}{\textsf{──}}$ $\tiny{\textsf{⊹ ࣪ ˖}}$ $\Large\color{#ffd454}{\textsf{✦}}$ $\large{\textsf{☆}}$ $\Large\color{#5788fa}{\textsf{Kitsune}}$ $\large{\textsf{☆}}$ $\Large\color{#ffd454}{\textsf{✦}}$ $\tiny{\textsf{˖ ࣪ ⊹}}$ $\small\color{purple}{\textsf{──}}$ ⋆｡ﾟ☁︎｡⋆ ﾟ
+# ｡⋆ ﾟ☾ ﾟ⋆｡ﾟ☁︎⋆ $\small\color{purple}{\textsf{──}}$ $\tiny{\textsf{⊹ ࣪ ˖}}$ $\Large\color{#ffd454}{\textsf{✦}}$ $\large{\textsf{☆}}$ $\Large\color{#5788fa}{\textsf{Kitsune}}$ $\large{\textsf{☆}}$ $\Large\color{#ffd454}{\textsf{✦}}$ $\tiny{\textsf{˖ ࣪ ⊹}}$ $\small\color{purple}{\textsf{──}}$ ⋆｡ﾟ☁︎｡⋆ ﾟ ☾⋆｡
 
 <p align="center">
 $\tiny\color{#d96f74}{\textsf{(It's better viewed in desktop.)}}$
